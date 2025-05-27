@@ -1,5 +1,6 @@
 ![Không Có Tiêu Đề158_20250520184814](https://github.com/user-attachments/assets/9c3296d0-9bbc-49d8-81e0-00f13d7becc9)
-💌 **:. „ Love is the great miracle cure, Loving ourselves works miracles in our lives. ” .:** 🌹
+💌 **:. „ Love is the great miracle cure, 
+Loving ourselves works miracles in our lives. ” .:** 🌹
 ![Không Có Tiêu Đề158_20250520185148](https://github.com/user-attachments/assets/a988bf62-f942-4f68-a768-e061895b3f82)
 
 
